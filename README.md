@@ -1,0 +1,1 @@
+Raj Hotel is one of the luxierious hotel
